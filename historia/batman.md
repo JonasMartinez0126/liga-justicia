@@ -1,0 +1,2 @@
+# Batman
+La historia de Batman comienza con el niño Bruce Wayne, quien, tras presenciar el asesinato de sus padres en Gotham City, jura dedicar su vida a combatir el crimen, convirtiéndose en un vigilante que usa su intelecto, tecnología y entrenamiento físico, sin superpoderes, para infundir terror en los criminales como el murciélago que lo inspiró, operando desde la Baticueva bajo la Mansión Wayne con su fiel mayordomo Alfred y sus aliados, en una eterna guerra contra la injusticia y la corrupción en su ciudad
